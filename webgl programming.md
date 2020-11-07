@@ -3,7 +3,6 @@
 ![cover](https://i.imgur.com/7ti1GGA.png)
 ![1page](https://i.imgur.com/cVH0ZCX.png)
 
-https://books.google.ru/books?id=1VgHCgAAQBA
 
 ---
 
